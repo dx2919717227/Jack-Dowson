@@ -1,2 +1,2 @@
 # Jack-Dowson
-小透明
+I hate coding :cry:
